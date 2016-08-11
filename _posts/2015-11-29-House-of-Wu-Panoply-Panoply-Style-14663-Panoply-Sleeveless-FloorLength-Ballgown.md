@@ -1,0 +1,16 @@
+---
+layout: post
+date: '2015-11-29'
+title: "House of Wu - Panoply Panoply Style 14663 - Panoply Sleeveless Floor-Length Ballgown"
+category: House of Wu - Panoply
+tags: [House of Wu - Panoply,House of Wu,Ballgown,Bateau,Floor-Length,Sleeveless]
+---
+### House of Wu - Panoply Panoply Style 14663 - Panoply
+Just **$359.99**
+###   Sleeveless Floor-Length Ballgown 
+<table><tr><td>BRANDS</td><td>House of Wu</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
+<a href="https://www.readybrides.com/en/house-of-wu-panoply/18893-house-of-wu-panoply-style-14663.html"><img src="//static.msromantic.com/42754/house-of-wu-panoply-style-14663.jpg" alt="Panoply  Style 14663 - Panoply" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/house-of-wu-panoply/18893-house-of-wu-panoply-style-14663.html"><img src="//static.msromantic.com/42755/house-of-wu-panoply-style-14663.jpg" alt="Panoply  Style 14663 - Panoply" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/house-of-wu-panoply/18893-house-of-wu-panoply-style-14663.html"><img src="//static.msromantic.com/42753/house-of-wu-panoply-style-14663.jpg" alt="Panoply  Style 14663 - Panoply" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/house-of-wu-panoply/18893-house-of-wu-panoply-style-14663.html](https://www.readybrides.com/en/house-of-wu-panoply/18893-house-of-wu-panoply-style-14663.html)
