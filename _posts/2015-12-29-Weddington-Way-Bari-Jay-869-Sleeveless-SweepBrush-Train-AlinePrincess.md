@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Halter,Sweep/Brush Train,Sleeveless]
 Just **$159.99**
 ###   Sleeveless Sweep/Brush Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Halter</td></tr><tr><td>Hemline/Train</td><td>Sweep/Brush Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16121-weddington-way-bari-jay-869.html"><img src="//static.msromantic.com/36383/weddington-way-bari-jay-869.jpg" alt="Weddington Way Bari Jay 869" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16121-weddington-way-bari-jay-869.html"><img src="//static.msromantic.com/36383/weddington-way-bari-jay-869.jpg" alt="Weddington Way Bari Jay 869" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/16121-weddington-way-bari-jay-869.html"><img src="//static.msromantic.com/36382/weddington-way-bari-jay-869.jpg" alt="Weddington Way Bari Jay 869" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/16121-weddington-way-bari-jay-869.html](https://www.readybrides.com/en/weddington-way/16121-weddington-way-bari-jay-869.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/16121-weddington-way-bari-jay-869.html"><img src="//static.msromantic.com/36382/weddington-way-bari-jay-869.jpg" alt="Weddington Way Bari Jay 869" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/16121-weddington-way-bari-jay-869.html](https://www.antebrands.com/en/weddington-way/16121-weddington-way-bari-jay-869.html)

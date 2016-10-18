@@ -9,7 +9,7 @@ tags: [Aurora Gavino,Aline/Princess ,Off The Shoulder,Floor-Length,Long Sleeves]
 Just **$349.99**
 ###   Long Sleeves Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Aurora Gavino</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Off The Shoulder</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/aurora-gavino/19714-aurora-gavino-romantica6.html"><img src="//static.msromantic.com/44749/aurora-gavino-romantica6.jpg" alt="Aurora Gavino romantica6" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/aurora-gavino/19714-aurora-gavino-romantica6.html"><img src="//static.msromantic.com/44749/aurora-gavino-romantica6.jpg" alt="Aurora Gavino romantica6" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/aurora-gavino/19714-aurora-gavino-romantica6.html](https://www.readybrides.com/en/aurora-gavino/19714-aurora-gavino-romantica6.html)
+Buy it: [https://www.antebrands.com/en/aurora-gavino/19714-aurora-gavino-romantica6.html](https://www.antebrands.com/en/aurora-gavino/19714-aurora-gavino-romantica6.html)

@@ -9,7 +9,7 @@ tags: [Weddington Way,Ballgown,Square,Tea-Length,Short Sleeves]
 Just **$199.99**
 ###   Short Sleeves Tea-Length Ballgown 
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Square</td></tr><tr><td>Hemline/Train</td><td>Tea-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16788-weddington-way-alfred-angelo-6655.html"><img src="//static.msromantic.com/37541/weddington-way-alfred-angelo-6655.jpg" alt="Weddington Way Alfred Angelo 6655" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16788-weddington-way-alfred-angelo-6655.html"><img src="//static.msromantic.com/37541/weddington-way-alfred-angelo-6655.jpg" alt="Weddington Way Alfred Angelo 6655" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/16788-weddington-way-alfred-angelo-6655.html"><img src="//static.msromantic.com/37540/weddington-way-alfred-angelo-6655.jpg" alt="Weddington Way Alfred Angelo 6655" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/16788-weddington-way-alfred-angelo-6655.html](https://www.readybrides.com/en/weddington-way/16788-weddington-way-alfred-angelo-6655.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/16788-weddington-way-alfred-angelo-6655.html"><img src="//static.msromantic.com/37540/weddington-way-alfred-angelo-6655.jpg" alt="Weddington Way Alfred Angelo 6655" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/16788-weddington-way-alfred-angelo-6655.html](https://www.antebrands.com/en/weddington-way/16788-weddington-way-alfred-angelo-6655.html)

@@ -9,7 +9,7 @@ tags: [House of Wu - Serena London,House of Wu,Aline/Princess ,Illusion,Floor-Le
 Just **$489.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>House of Wu</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/house-of-wu-serena-london/18997-house-of-wu-serena-london-style-20185.html"><img src="//static.msromantic.com/43087/house-of-wu-serena-london-style-20185.jpg" alt="Serena London Style 20185 - Serena London" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/house-of-wu-serena-london/18997-house-of-wu-serena-london-style-20185.html"><img src="//static.msromantic.com/43087/house-of-wu-serena-london-style-20185.jpg" alt="Serena London Style 20185 - Serena London" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/house-of-wu-serena-london/18997-house-of-wu-serena-london-style-20185.html"><img src="//static.msromantic.com/43086/house-of-wu-serena-london-style-20185.jpg" alt="Serena London Style 20185 - Serena London" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/house-of-wu-serena-london/18997-house-of-wu-serena-london-style-20185.html](https://www.readybrides.com/en/house-of-wu-serena-london/18997-house-of-wu-serena-london-style-20185.html)
+<!-- break --><a href="https://www.antebrands.com/en/house-of-wu-serena-london/18997-house-of-wu-serena-london-style-20185.html"><img src="//static.msromantic.com/43086/house-of-wu-serena-london-style-20185.jpg" alt="Serena London Style 20185 - Serena London" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/house-of-wu-serena-london/18997-house-of-wu-serena-london-style-20185.html](https://www.antebrands.com/en/house-of-wu-serena-london/18997-house-of-wu-serena-london-style-20185.html)

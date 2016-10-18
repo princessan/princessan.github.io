@@ -9,7 +9,7 @@ tags: [AKAY sezanur,Aline/Princess ,Sweetheart,Sleeveless]
 Just **$369.99**
 ###   Sleeveless  Aline/Princess  
 <table><tr><td>BRANDS</td><td>AKAY sezanur</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/akay-sezanur-akay-2015/19779-akay-model-15005.html"><img src="//static.msromantic.com/44824/akay-model-15005.jpg" alt="AKAY Model 15005" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/akay-sezanur-akay-2015/19779-akay-model-15005.html"><img src="//static.msromantic.com/44824/akay-model-15005.jpg" alt="AKAY Model 15005" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/akay-sezanur-akay-2015/19779-akay-model-15005.html](https://www.readybrides.com/en/akay-sezanur-akay-2015/19779-akay-model-15005.html)
+Buy it: [https://www.antebrands.com/en/akay-sezanur-akay-2015/19779-akay-model-15005.html](https://www.antebrands.com/en/akay-sezanur-akay-2015/19779-akay-model-15005.html)

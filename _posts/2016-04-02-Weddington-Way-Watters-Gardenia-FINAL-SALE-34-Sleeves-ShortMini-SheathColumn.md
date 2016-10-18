@@ -9,7 +9,7 @@ tags: [Weddington Way,Sheath/Column,One shoulder,Short/Mini,3/4 Sleeves]
 Just **$149.99**
 ###   3/4 Sleeves Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>One shoulder</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>3/4 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16683-weddington-way-watters-gardenia-final-sale.html"><img src="//static.msromantic.com/37390/weddington-way-watters-gardenia-final-sale.jpg" alt="Weddington Way Watters Gardenia FINAL SALE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16683-weddington-way-watters-gardenia-final-sale.html"><img src="//static.msromantic.com/37390/weddington-way-watters-gardenia-final-sale.jpg" alt="Weddington Way Watters Gardenia FINAL SALE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/16683-weddington-way-watters-gardenia-final-sale.html](https://www.readybrides.com/en/weddington-way/16683-weddington-way-watters-gardenia-final-sale.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/16683-weddington-way-watters-gardenia-final-sale.html](https://www.antebrands.com/en/weddington-way/16683-weddington-way-watters-gardenia-final-sale.html)

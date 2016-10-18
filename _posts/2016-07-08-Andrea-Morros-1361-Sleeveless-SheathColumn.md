@@ -9,7 +9,7 @@ tags: [Andrea Morros,Andrea Morros ,Sheath/Column,Straps,Sleeveless]
 Just **$279.99**
 ###   Sleeveless  Sheath/Column 
 <table><tr><td>BRANDS</td><td>Andrea Morros </td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Straps</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/andrea-morros/15379-andrea-morros-1361.html"><img src="//static.msromantic.com/34955/andrea-morros-1361.jpg" alt="Andrea Morros 1361" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/andrea-morros/15379-andrea-morros-1361.html"><img src="//static.msromantic.com/34955/andrea-morros-1361.jpg" alt="Andrea Morros 1361" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/andrea-morros/15379-andrea-morros-1361.html](https://www.readybrides.com/en/andrea-morros/15379-andrea-morros-1361.html)
+Buy it: [https://www.antebrands.com/en/andrea-morros/15379-andrea-morros-1361.html](https://www.antebrands.com/en/andrea-morros/15379-andrea-morros-1361.html)

@@ -9,8 +9,8 @@ tags: [House of Wu,Aline/Princess ,V-neck,Short/Mini,Sleeveless]
 Just **$349.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>House of Wu</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html"><img src="//static.msromantic.com/41790/house-of-wu-christina-wu-occasions-style-22530.jpg" alt="Christina Wu Occasions Style 22530" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html"><img src="//static.msromantic.com/41790/house-of-wu-christina-wu-occasions-style-22530.jpg" alt="Christina Wu Occasions Style 22530" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html"><img src="//static.msromantic.com/41791/house-of-wu-christina-wu-occasions-style-22530.jpg" alt="Christina Wu Occasions Style 22530" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html"><img src="//static.msromantic.com/41789/house-of-wu-christina-wu-occasions-style-22530.jpg" alt="Christina Wu Occasions Style 22530" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html](https://www.readybrides.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html)
+<!-- break --><a href="https://www.antebrands.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html"><img src="//static.msromantic.com/41791/house-of-wu-christina-wu-occasions-style-22530.jpg" alt="Christina Wu Occasions Style 22530" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html"><img src="//static.msromantic.com/41789/house-of-wu-christina-wu-occasions-style-22530.jpg" alt="Christina Wu Occasions Style 22530" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html](https://www.antebrands.com/en/house-of-wu/18519-house-of-wu-christina-wu-occasions-style-22530.html)

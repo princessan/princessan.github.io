@@ -9,7 +9,7 @@ tags: [Antonios Couture]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/antonios-couture/17360-antonios-couture-33.html"><img src="//static.msromantic.com/38549/antonios-couture-33.jpg" alt="Antonios Couture 33" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/antonios-couture/17360-antonios-couture-33.html"><img src="//static.msromantic.com/38549/antonios-couture-33.jpg" alt="Antonios Couture 33" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/antonios-couture/17360-antonios-couture-33.html](https://www.readybrides.com/en/antonios-couture/17360-antonios-couture-33.html)
+Buy it: [https://www.antebrands.com/en/antonios-couture/17360-antonios-couture-33.html](https://www.antebrands.com/en/antonios-couture/17360-antonios-couture-33.html)

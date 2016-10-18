@@ -9,7 +9,7 @@ tags: [Aurora Gavino,Ballgown,Jewel,Floor-Length,Sleeveless]
 Just **$339.99**
 ###   Sleeveless Floor-Length Ballgown 
 <table><tr><td>BRANDS</td><td>Aurora Gavino</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Jewel</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/aurora-gavino/19705-aurora-gavino-tradicion2.html"><img src="//static.msromantic.com/44738/aurora-gavino-tradicion2.jpg" alt="Aurora Gavino tradicion2" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/aurora-gavino/19705-aurora-gavino-tradicion2.html"><img src="//static.msromantic.com/44738/aurora-gavino-tradicion2.jpg" alt="Aurora Gavino tradicion2" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/aurora-gavino/19705-aurora-gavino-tradicion2.html](https://www.readybrides.com/en/aurora-gavino/19705-aurora-gavino-tradicion2.html)
+Buy it: [https://www.antebrands.com/en/aurora-gavino/19705-aurora-gavino-tradicion2.html](https://www.antebrands.com/en/aurora-gavino/19705-aurora-gavino-tradicion2.html)

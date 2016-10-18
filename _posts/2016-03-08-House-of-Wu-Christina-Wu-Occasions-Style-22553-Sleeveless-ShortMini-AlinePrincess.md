@@ -9,7 +9,7 @@ tags: [House of Wu,Aline/Princess ,Strapless,Short/Mini,Sleeveless]
 Just **$379.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>House of Wu</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/house-of-wu/18526-house-of-wu-christina-wu-occasions-style-22553.html"><img src="//static.msromantic.com/41807/house-of-wu-christina-wu-occasions-style-22553.jpg" alt="Christina Wu Occasions Style 22553" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/house-of-wu/18526-house-of-wu-christina-wu-occasions-style-22553.html"><img src="//static.msromantic.com/41807/house-of-wu-christina-wu-occasions-style-22553.jpg" alt="Christina Wu Occasions Style 22553" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/house-of-wu/18526-house-of-wu-christina-wu-occasions-style-22553.html"><img src="//static.msromantic.com/41806/house-of-wu-christina-wu-occasions-style-22553.jpg" alt="Christina Wu Occasions Style 22553" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/house-of-wu/18526-house-of-wu-christina-wu-occasions-style-22553.html](https://www.readybrides.com/en/house-of-wu/18526-house-of-wu-christina-wu-occasions-style-22553.html)
+<!-- break --><a href="https://www.antebrands.com/en/house-of-wu/18526-house-of-wu-christina-wu-occasions-style-22553.html"><img src="//static.msromantic.com/41806/house-of-wu-christina-wu-occasions-style-22553.jpg" alt="Christina Wu Occasions Style 22553" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/house-of-wu/18526-house-of-wu-christina-wu-occasions-style-22553.html](https://www.antebrands.com/en/house-of-wu/18526-house-of-wu-christina-wu-occasions-style-22553.html)

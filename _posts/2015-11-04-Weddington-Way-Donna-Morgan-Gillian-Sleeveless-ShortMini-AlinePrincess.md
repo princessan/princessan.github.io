@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Bateau,Short/Mini,Sleeveless]
 Just **$149.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16533-weddington-way-donna-morgan-gillian.html"><img src="//static.msromantic.com/37100/weddington-way-donna-morgan-gillian.jpg" alt="Weddington Way Donna Morgan Gillian" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16533-weddington-way-donna-morgan-gillian.html"><img src="//static.msromantic.com/37100/weddington-way-donna-morgan-gillian.jpg" alt="Weddington Way Donna Morgan Gillian" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/16533-weddington-way-donna-morgan-gillian.html"><img src="//static.msromantic.com/37099/weddington-way-donna-morgan-gillian.jpg" alt="Weddington Way Donna Morgan Gillian" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/16533-weddington-way-donna-morgan-gillian.html](https://www.readybrides.com/en/weddington-way/16533-weddington-way-donna-morgan-gillian.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/16533-weddington-way-donna-morgan-gillian.html"><img src="//static.msromantic.com/37099/weddington-way-donna-morgan-gillian.jpg" alt="Weddington Way Donna Morgan Gillian" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/16533-weddington-way-donna-morgan-gillian.html](https://www.antebrands.com/en/weddington-way/16533-weddington-way-donna-morgan-gillian.html)

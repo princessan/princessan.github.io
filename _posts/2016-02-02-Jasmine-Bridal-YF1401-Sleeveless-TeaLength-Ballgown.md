@@ -9,7 +9,7 @@ tags: [Jasmine,Ballgown,Square,Tea-Length,Sleeveless]
 Just **$159.99**
 ###   Sleeveless Tea-Length Ballgown 
 <table><tr><td>BRANDS</td><td>Jasmine</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>Square</td></tr><tr><td>Hemline/Train</td><td>Tea-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/jasmine/19425-jasmine-bridal-yf1401.html"><img src="//static.msromantic.com/44149/jasmine-bridal-yf1401.jpg" alt="Jasmine Bridal YF1401" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jasmine/19425-jasmine-bridal-yf1401.html"><img src="//static.msromantic.com/44149/jasmine-bridal-yf1401.jpg" alt="Jasmine Bridal YF1401" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/jasmine/19425-jasmine-bridal-yf1401.html](https://www.readybrides.com/en/jasmine/19425-jasmine-bridal-yf1401.html)
+Buy it: [https://www.antebrands.com/en/jasmine/19425-jasmine-bridal-yf1401.html](https://www.antebrands.com/en/jasmine/19425-jasmine-bridal-yf1401.html)

@@ -9,7 +9,7 @@ tags: [Carla Ruiz,Carla Ruiz ,Sheath/Column,Bateau,Short/Mini,Short Sleeves]
 Just **$249.99**
 ###   Short Sleeves Short/Mini Sheath/Column 
 <table><tr><td>BRANDS</td><td>Carla Ruiz </td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/carla-ruiz/20467-carla-ruiz-ref-91115.html"><img src="//static.msromantic.com/46256/carla-ruiz-ref-91115.jpg" alt="Carla Ruiz Ref. 91115" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/carla-ruiz/20467-carla-ruiz-ref-91115.html"><img src="//static.msromantic.com/46256/carla-ruiz-ref-91115.jpg" alt="Carla Ruiz Ref. 91115" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/carla-ruiz/20467-carla-ruiz-ref-91115.html](https://www.readybrides.com/en/carla-ruiz/20467-carla-ruiz-ref-91115.html)
+Buy it: [https://www.antebrands.com/en/carla-ruiz/20467-carla-ruiz-ref-91115.html](https://www.antebrands.com/en/carla-ruiz/20467-carla-ruiz-ref-91115.html)

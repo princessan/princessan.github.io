@@ -9,7 +9,7 @@ tags: [Bill Levkoff ,Bill Levkoff,Aline/Princess ,Scoop Neck,Chapel Train,Sleeve
 Just **$289.99**
 ###   Sleeveless Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Bill Levkoff</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Scoop Neck</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/bill-levkoff-/15035-bill-levkoff-bridal-gown-style-21240.html"><img src="//static.msromantic.com/34142/bill-levkoff-bridal-gown-style-21240.jpg" alt="Bill Levkoff Bridal Gown Style 21240" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bill-levkoff-/15035-bill-levkoff-bridal-gown-style-21240.html"><img src="//static.msromantic.com/34142/bill-levkoff-bridal-gown-style-21240.jpg" alt="Bill Levkoff Bridal Gown Style 21240" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/bill-levkoff-/15035-bill-levkoff-bridal-gown-style-21240.html"><img src="//static.msromantic.com/34141/bill-levkoff-bridal-gown-style-21240.jpg" alt="Bill Levkoff Bridal Gown Style 21240" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/bill-levkoff-/15035-bill-levkoff-bridal-gown-style-21240.html](https://www.readybrides.com/en/bill-levkoff-/15035-bill-levkoff-bridal-gown-style-21240.html)
+<!-- break --><a href="https://www.antebrands.com/en/bill-levkoff-/15035-bill-levkoff-bridal-gown-style-21240.html"><img src="//static.msromantic.com/34141/bill-levkoff-bridal-gown-style-21240.jpg" alt="Bill Levkoff Bridal Gown Style 21240" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/bill-levkoff-/15035-bill-levkoff-bridal-gown-style-21240.html](https://www.antebrands.com/en/bill-levkoff-/15035-bill-levkoff-bridal-gown-style-21240.html)

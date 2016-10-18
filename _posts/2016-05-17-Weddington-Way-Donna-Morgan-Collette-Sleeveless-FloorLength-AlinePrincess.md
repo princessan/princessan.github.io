@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,V-neck,straps,Floor-Length,Sleeveless]
 Just **$119.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>V-neck,straps</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16728-weddington-way-donna-morgan-collette.html"><img src="//static.msromantic.com/37452/weddington-way-donna-morgan-collette.jpg" alt="Weddington Way Donna Morgan Collette" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16728-weddington-way-donna-morgan-collette.html"><img src="//static.msromantic.com/37452/weddington-way-donna-morgan-collette.jpg" alt="Weddington Way Donna Morgan Collette" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/16728-weddington-way-donna-morgan-collette.html"><img src="//static.msromantic.com/37451/weddington-way-donna-morgan-collette.jpg" alt="Weddington Way Donna Morgan Collette" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/16728-weddington-way-donna-morgan-collette.html](https://www.readybrides.com/en/weddington-way/16728-weddington-way-donna-morgan-collette.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/16728-weddington-way-donna-morgan-collette.html"><img src="//static.msromantic.com/37451/weddington-way-donna-morgan-collette.jpg" alt="Weddington Way Donna Morgan Collette" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/16728-weddington-way-donna-morgan-collette.html](https://www.antebrands.com/en/weddington-way/16728-weddington-way-donna-morgan-collette.html)

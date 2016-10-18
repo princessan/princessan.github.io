@@ -9,7 +9,7 @@ tags: [Angel Rivera,Aline/Princess ,Off The Shoulder,Chapel Train,Short Sleeves]
 Just **$299.99**
 ###   Short Sleeves Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Angel Rivera</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Off The Shoulder</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/angel-rivera-collection/17303-angel-rivera-nancy.html"><img src="//static.msromantic.com/38461/angel-rivera-nancy.jpg" alt="Angel Rivera Couture Nancy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/angel-rivera-collection/17303-angel-rivera-nancy.html"><img src="//static.msromantic.com/38461/angel-rivera-nancy.jpg" alt="Angel Rivera Couture Nancy" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/angel-rivera-collection/17303-angel-rivera-nancy.html](https://www.readybrides.com/en/angel-rivera-collection/17303-angel-rivera-nancy.html)
+Buy it: [https://www.antebrands.com/en/angel-rivera-collection/17303-angel-rivera-nancy.html](https://www.antebrands.com/en/angel-rivera-collection/17303-angel-rivera-nancy.html)

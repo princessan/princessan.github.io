@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Halter,Floor-Length,Sleeveless]
 Just **$119.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Halter</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16124-weddington-way-bari-jay-859.html"><img src="//static.msromantic.com/36389/weddington-way-bari-jay-859.jpg" alt="Weddington Way Bari Jay 859" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16124-weddington-way-bari-jay-859.html"><img src="//static.msromantic.com/36389/weddington-way-bari-jay-859.jpg" alt="Weddington Way Bari Jay 859" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/16124-weddington-way-bari-jay-859.html"><img src="//static.msromantic.com/36388/weddington-way-bari-jay-859.jpg" alt="Weddington Way Bari Jay 859" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/16124-weddington-way-bari-jay-859.html](https://www.readybrides.com/en/weddington-way/16124-weddington-way-bari-jay-859.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/16124-weddington-way-bari-jay-859.html"><img src="//static.msromantic.com/36388/weddington-way-bari-jay-859.jpg" alt="Weddington Way Bari Jay 859" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/16124-weddington-way-bari-jay-859.html](https://www.antebrands.com/en/weddington-way/16124-weddington-way-bari-jay-859.html)

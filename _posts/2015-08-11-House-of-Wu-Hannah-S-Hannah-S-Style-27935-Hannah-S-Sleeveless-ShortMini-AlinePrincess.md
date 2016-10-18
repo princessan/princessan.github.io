@@ -9,7 +9,7 @@ tags: [House of Wu - Hannah S,House of Wu,Aline/Princess ,Sweetheart,Short/Mini,
 Just **$329.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>House of Wu</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/house-of-wu-hannah-s/18783-house-of-wu-hannah-s-style-27935.html"><img src="//static.msromantic.com/42439/house-of-wu-hannah-s-style-27935.jpg" alt="Hannah S Style 27935 - Hannah S" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/house-of-wu-hannah-s/18783-house-of-wu-hannah-s-style-27935.html"><img src="//static.msromantic.com/42439/house-of-wu-hannah-s-style-27935.jpg" alt="Hannah S Style 27935 - Hannah S" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/house-of-wu-hannah-s/18783-house-of-wu-hannah-s-style-27935.html](https://www.readybrides.com/en/house-of-wu-hannah-s/18783-house-of-wu-hannah-s-style-27935.html)
+Buy it: [https://www.antebrands.com/en/house-of-wu-hannah-s/18783-house-of-wu-hannah-s-style-27935.html](https://www.antebrands.com/en/house-of-wu-hannah-s/18783-house-of-wu-hannah-s-style-27935.html)

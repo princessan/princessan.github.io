@@ -9,8 +9,8 @@ tags: [Demetrios,Aline/Princess ,Sweetheart,Chapel Train,Sleeveless]
 Just **$309.99**
 ###   Sleeveless Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Demetrios</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/demetrios/17737-demetrios-style-gr237.html"><img src="//static.msromantic.com/39506/demetrios-style-gr237.jpg" alt="Demetrios Sensualle Style GR237" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/demetrios/17737-demetrios-style-gr237.html"><img src="//static.msromantic.com/39506/demetrios-style-gr237.jpg" alt="Demetrios Sensualle Style GR237" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/demetrios/17737-demetrios-style-gr237.html"><img src="//static.msromantic.com/39507/demetrios-style-gr237.jpg" alt="Demetrios Sensualle Style GR237" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/demetrios/17737-demetrios-style-gr237.html"><img src="//static.msromantic.com/39505/demetrios-style-gr237.jpg" alt="Demetrios Sensualle Style GR237" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/demetrios/17737-demetrios-style-gr237.html](https://www.readybrides.com/en/demetrios/17737-demetrios-style-gr237.html)
+<!-- break --><a href="https://www.antebrands.com/en/demetrios/17737-demetrios-style-gr237.html"><img src="//static.msromantic.com/39507/demetrios-style-gr237.jpg" alt="Demetrios Sensualle Style GR237" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/demetrios/17737-demetrios-style-gr237.html"><img src="//static.msromantic.com/39505/demetrios-style-gr237.jpg" alt="Demetrios Sensualle Style GR237" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/demetrios/17737-demetrios-style-gr237.html](https://www.antebrands.com/en/demetrios/17737-demetrios-style-gr237.html)

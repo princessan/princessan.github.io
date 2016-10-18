@@ -9,7 +9,7 @@ tags: [Amanda Wakeley,Sheath/Column,V-neck,Court Train,Short Sleeves]
 Just **$329.99**
 ###   Short Sleeves Court Train Sheath/Column 
 <table><tr><td>BRANDS</td><td>Amanda Wakeley</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/amanda-wakeley/17515-amanda-wakeley-lara-wedding-dress.html"><img src="//static.msromantic.com/38880/amanda-wakeley-lara-wedding-dress.jpg" alt="Amanda Wakeley Lara Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/amanda-wakeley/17515-amanda-wakeley-lara-wedding-dress.html"><img src="//static.msromantic.com/38880/amanda-wakeley-lara-wedding-dress.jpg" alt="Amanda Wakeley Lara Wedding Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/amanda-wakeley/17515-amanda-wakeley-lara-wedding-dress.html"><img src="//static.msromantic.com/38879/amanda-wakeley-lara-wedding-dress.jpg" alt="Amanda Wakeley Lara Wedding Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/amanda-wakeley/17515-amanda-wakeley-lara-wedding-dress.html](https://www.readybrides.com/en/amanda-wakeley/17515-amanda-wakeley-lara-wedding-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/amanda-wakeley/17515-amanda-wakeley-lara-wedding-dress.html"><img src="//static.msromantic.com/38879/amanda-wakeley-lara-wedding-dress.jpg" alt="Amanda Wakeley Lara Wedding Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/amanda-wakeley/17515-amanda-wakeley-lara-wedding-dress.html](https://www.antebrands.com/en/amanda-wakeley/17515-amanda-wakeley-lara-wedding-dress.html)

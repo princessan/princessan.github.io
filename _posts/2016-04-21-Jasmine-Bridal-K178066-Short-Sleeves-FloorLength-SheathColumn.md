@@ -9,7 +9,7 @@ tags: [Jasmine ,Jasmine,Sheath/Column,Queen Anne,Floor-Length,Short Sleeves]
 Just **$279.99**
 ###   Short Sleeves Floor-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>Jasmine</td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Queen Anne</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/jasmine-/19504-jasmine-bridal-k178066.html"><img src="//static.msromantic.com/44298/jasmine-bridal-k178066.jpg" alt="Jasmine Bridal K178066" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/jasmine-/19504-jasmine-bridal-k178066.html"><img src="//static.msromantic.com/44298/jasmine-bridal-k178066.jpg" alt="Jasmine Bridal K178066" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/jasmine-/19504-jasmine-bridal-k178066.html"><img src="//static.msromantic.com/44297/jasmine-bridal-k178066.jpg" alt="Jasmine Bridal K178066" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/jasmine-/19504-jasmine-bridal-k178066.html](https://www.readybrides.com/en/jasmine-/19504-jasmine-bridal-k178066.html)
+<!-- break --><a href="https://www.antebrands.com/en/jasmine-/19504-jasmine-bridal-k178066.html"><img src="//static.msromantic.com/44297/jasmine-bridal-k178066.jpg" alt="Jasmine Bridal K178066" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/jasmine-/19504-jasmine-bridal-k178066.html](https://www.antebrands.com/en/jasmine-/19504-jasmine-bridal-k178066.html)

@@ -9,7 +9,7 @@ tags: [Bill Levkoff ,Coren Moore,Aline/Princess ,Sweetheart,Floor-Length,Sleevel
 Just **$199.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Coren Moore</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/bill-levkoff-bridesmaid-dresses-bl-collection/14943-bill-levkoff-bridesmaid-dress-style-748.html"><img src="//static.msromantic.com/33998/bill-levkoff-bridesmaid-dress-style-748.jpg" alt="Bill Levkoff Bridesmaid Dress Style 748" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bill-levkoff-bridesmaid-dresses-bl-collection/14943-bill-levkoff-bridesmaid-dress-style-748.html"><img src="//static.msromantic.com/33998/bill-levkoff-bridesmaid-dress-style-748.jpg" alt="Bill Levkoff Bridesmaid Dress Style 748" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/bill-levkoff-bridesmaid-dresses-bl-collection/14943-bill-levkoff-bridesmaid-dress-style-748.html"><img src="//static.msromantic.com/33997/bill-levkoff-bridesmaid-dress-style-748.jpg" alt="Bill Levkoff Bridesmaid Dress Style 748" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/bill-levkoff-bridesmaid-dresses-bl-collection/14943-bill-levkoff-bridesmaid-dress-style-748.html](https://www.readybrides.com/en/bill-levkoff-bridesmaid-dresses-bl-collection/14943-bill-levkoff-bridesmaid-dress-style-748.html)
+<!-- break --><a href="https://www.antebrands.com/en/bill-levkoff-bridesmaid-dresses-bl-collection/14943-bill-levkoff-bridesmaid-dress-style-748.html"><img src="//static.msromantic.com/33997/bill-levkoff-bridesmaid-dress-style-748.jpg" alt="Bill Levkoff Bridesmaid Dress Style 748" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/bill-levkoff-bridesmaid-dresses-bl-collection/14943-bill-levkoff-bridesmaid-dress-style-748.html](https://www.antebrands.com/en/bill-levkoff-bridesmaid-dresses-bl-collection/14943-bill-levkoff-bridesmaid-dress-style-748.html)

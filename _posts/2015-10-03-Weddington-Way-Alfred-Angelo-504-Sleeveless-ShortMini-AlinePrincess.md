@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Spaghetti Straps,Short/Mini,Sleeveless]
 Just **$139.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Spaghetti Straps</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16968-weddington-way-alfred-angelo-504.html"><img src="//static.msromantic.com/37855/weddington-way-alfred-angelo-504.jpg" alt="Weddington Way Alfred Angelo 504" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16968-weddington-way-alfred-angelo-504.html"><img src="//static.msromantic.com/37855/weddington-way-alfred-angelo-504.jpg" alt="Weddington Way Alfred Angelo 504" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/16968-weddington-way-alfred-angelo-504.html](https://www.readybrides.com/en/weddington-way/16968-weddington-way-alfred-angelo-504.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/16968-weddington-way-alfred-angelo-504.html](https://www.antebrands.com/en/weddington-way/16968-weddington-way-alfred-angelo-504.html)

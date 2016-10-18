@@ -9,7 +9,7 @@ tags: [AKAY aksesuar]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/akay-aksesuar-2015/19751-akay-model-dv051.html"><img src="//static.msromantic.com/44796/akay-model-dv051.jpg" alt="AKAY Model DV051" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/akay-aksesuar-2015/19751-akay-model-dv051.html"><img src="//static.msromantic.com/44796/akay-model-dv051.jpg" alt="AKAY Model DV051" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/akay-aksesuar-2015/19751-akay-model-dv051.html](https://www.readybrides.com/en/akay-aksesuar-2015/19751-akay-model-dv051.html)
+Buy it: [https://www.antebrands.com/en/akay-aksesuar-2015/19751-akay-model-dv051.html](https://www.antebrands.com/en/akay-aksesuar-2015/19751-akay-model-dv051.html)

@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Sweetheart,Short/Mini,Sleeveless]
 Just **$139.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16467-weddington-way-alfred-sung-d536-fs.html"><img src="//static.msromantic.com/36976/weddington-way-alfred-sung-d536-fs.jpg" alt="Weddington Way Alfred Sung D536 FS" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16467-weddington-way-alfred-sung-d536-fs.html"><img src="//static.msromantic.com/36976/weddington-way-alfred-sung-d536-fs.jpg" alt="Weddington Way Alfred Sung D536 FS" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/16467-weddington-way-alfred-sung-d536-fs.html](https://www.readybrides.com/en/weddington-way/16467-weddington-way-alfred-sung-d536-fs.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/16467-weddington-way-alfred-sung-d536-fs.html](https://www.antebrands.com/en/weddington-way/16467-weddington-way-alfred-sung-d536-fs.html)

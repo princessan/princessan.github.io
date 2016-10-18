@@ -9,7 +9,7 @@ tags: [Amy Kuschel,Mermaid/Trumpet,Strapless,Court Train,Sleeveless]
 Just **$279.99**
 ###   Sleeveless Court Train Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Amy Kuschel</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/amy-kuschel/19625-amy-kuschel-kennedy.html"><img src="//static.msromantic.com/44578/amy-kuschel-kennedy.jpg" alt="Amy Kuschel Kennedy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/amy-kuschel/19625-amy-kuschel-kennedy.html"><img src="//static.msromantic.com/44578/amy-kuschel-kennedy.jpg" alt="Amy Kuschel Kennedy" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/amy-kuschel/19625-amy-kuschel-kennedy.html"><img src="//static.msromantic.com/44577/amy-kuschel-kennedy.jpg" alt="Amy Kuschel Kennedy" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/amy-kuschel/19625-amy-kuschel-kennedy.html](https://www.readybrides.com/en/amy-kuschel/19625-amy-kuschel-kennedy.html)
+<!-- break --><a href="https://www.antebrands.com/en/amy-kuschel/19625-amy-kuschel-kennedy.html"><img src="//static.msromantic.com/44577/amy-kuschel-kennedy.jpg" alt="Amy Kuschel Kennedy" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/amy-kuschel/19625-amy-kuschel-kennedy.html](https://www.antebrands.com/en/amy-kuschel/19625-amy-kuschel-kennedy.html)

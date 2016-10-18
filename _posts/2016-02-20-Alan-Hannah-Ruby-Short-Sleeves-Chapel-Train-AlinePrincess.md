@@ -9,7 +9,7 @@ tags: [Alan Hannah,Aline/Princess ,V-neck,Chapel Train,Short Sleeves]
 Just **$339.99**
 ###   Short Sleeves Chapel Train Aline/Princess  
 <table><tr><td>BRANDS</td><td>Alan Hannah</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/alan-hannah/19910-alan-hannah-ruby.html"><img src="//static.msromantic.com/45144/alan-hannah-ruby.jpg" alt="Alan Hannah Ruby" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/alan-hannah/19910-alan-hannah-ruby.html"><img src="//static.msromantic.com/45144/alan-hannah-ruby.jpg" alt="Alan Hannah Ruby" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/alan-hannah/19910-alan-hannah-ruby.html"><img src="//static.msromantic.com/45145/alan-hannah-ruby.jpg" alt="Alan Hannah Ruby" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/alan-hannah/19910-alan-hannah-ruby.html](https://www.readybrides.com/en/alan-hannah/19910-alan-hannah-ruby.html)
+<!-- break --><a href="https://www.antebrands.com/en/alan-hannah/19910-alan-hannah-ruby.html"><img src="//static.msromantic.com/45145/alan-hannah-ruby.jpg" alt="Alan Hannah Ruby" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/alan-hannah/19910-alan-hannah-ruby.html](https://www.antebrands.com/en/alan-hannah/19910-alan-hannah-ruby.html)

@@ -9,7 +9,7 @@ tags: [House of Wu - Damas,House of Wu,Aline/Princess ,Halter,Short/Mini,Sleevel
 Just **$249.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>House of Wu</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Halter</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/house-of-wu-damas/18626-house-of-wu-damas-style-52306.html"><img src="//static.msromantic.com/42007/house-of-wu-damas-style-52306.jpg" alt="Damas Style 52306 - Damas" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/house-of-wu-damas/18626-house-of-wu-damas-style-52306.html"><img src="//static.msromantic.com/42007/house-of-wu-damas-style-52306.jpg" alt="Damas Style 52306 - Damas" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/house-of-wu-damas/18626-house-of-wu-damas-style-52306.html"><img src="//static.msromantic.com/42006/house-of-wu-damas-style-52306.jpg" alt="Damas Style 52306 - Damas" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/house-of-wu-damas/18626-house-of-wu-damas-style-52306.html](https://www.readybrides.com/en/house-of-wu-damas/18626-house-of-wu-damas-style-52306.html)
+<!-- break --><a href="https://www.antebrands.com/en/house-of-wu-damas/18626-house-of-wu-damas-style-52306.html"><img src="//static.msromantic.com/42006/house-of-wu-damas-style-52306.jpg" alt="Damas Style 52306 - Damas" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/house-of-wu-damas/18626-house-of-wu-damas-style-52306.html](https://www.antebrands.com/en/house-of-wu-damas/18626-house-of-wu-damas-style-52306.html)

@@ -9,7 +9,7 @@ tags: [Carla Ruiz,Carla Ruiz ,Sheath/Column,Jewel,Asymmetrical,Sleeveless]
 Just **$219.99**
 ###   Sleeveless Asymmetrical Sheath/Column 
 <table><tr><td>BRANDS</td><td>Carla Ruiz </td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Jewel</td></tr><tr><td>Hemline/Train</td><td>Asymmetrical</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/carla-ruiz/20443-carla-ruiz-ref-91574.html"><img src="//static.msromantic.com/46232/carla-ruiz-ref-91574.jpg" alt="Carla Ruiz Ref. 91574" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/carla-ruiz/20443-carla-ruiz-ref-91574.html"><img src="//static.msromantic.com/46232/carla-ruiz-ref-91574.jpg" alt="Carla Ruiz Ref. 91574" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/carla-ruiz/20443-carla-ruiz-ref-91574.html](https://www.readybrides.com/en/carla-ruiz/20443-carla-ruiz-ref-91574.html)
+Buy it: [https://www.antebrands.com/en/carla-ruiz/20443-carla-ruiz-ref-91574.html](https://www.antebrands.com/en/carla-ruiz/20443-carla-ruiz-ref-91574.html)

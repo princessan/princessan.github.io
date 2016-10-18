@@ -9,7 +9,7 @@ tags: [Bari Jay ,Bari Jay  ,Aline/Princess ,Spaghetti Straps,Floor-Length,Sleeve
 Just **$129.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Bari Jay  </td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Spaghetti Straps</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/bari-jay-/15214-bari-jay-style-701.html"><img src="//static.msromantic.com/34603/bari-jay-style-701.jpg" alt="Bari Jay STYLE: 701" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bari-jay-/15214-bari-jay-style-701.html"><img src="//static.msromantic.com/34603/bari-jay-style-701.jpg" alt="Bari Jay STYLE: 701" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/bari-jay-/15214-bari-jay-style-701.html"><img src="//static.msromantic.com/34602/bari-jay-style-701.jpg" alt="Bari Jay STYLE: 701" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/bari-jay-/15214-bari-jay-style-701.html](https://www.readybrides.com/en/bari-jay-/15214-bari-jay-style-701.html)
+<!-- break --><a href="https://www.antebrands.com/en/bari-jay-/15214-bari-jay-style-701.html"><img src="//static.msromantic.com/34602/bari-jay-style-701.jpg" alt="Bari Jay STYLE: 701" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/bari-jay-/15214-bari-jay-style-701.html](https://www.antebrands.com/en/bari-jay-/15214-bari-jay-style-701.html)

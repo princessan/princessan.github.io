@@ -9,7 +9,7 @@ tags: [House of Wu - Serena London,House of Wu,Mermaid/Trumpet,V-neck,Floor-Leng
 Just **$499.99**
 ###   1/2 Sleeves Floor-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>House of Wu</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>1/2 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/house-of-wu-serena-london/19032-house-of-wu-serena-london-style-20174.html"><img src="//static.msromantic.com/43183/house-of-wu-serena-london-style-20174.jpg" alt="Serena London Style 20174 - Serena London" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/house-of-wu-serena-london/19032-house-of-wu-serena-london-style-20174.html"><img src="//static.msromantic.com/43183/house-of-wu-serena-london-style-20174.jpg" alt="Serena London Style 20174 - Serena London" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/house-of-wu-serena-london/19032-house-of-wu-serena-london-style-20174.html"><img src="//static.msromantic.com/43182/house-of-wu-serena-london-style-20174.jpg" alt="Serena London Style 20174 - Serena London" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/house-of-wu-serena-london/19032-house-of-wu-serena-london-style-20174.html](https://www.readybrides.com/en/house-of-wu-serena-london/19032-house-of-wu-serena-london-style-20174.html)
+<!-- break --><a href="https://www.antebrands.com/en/house-of-wu-serena-london/19032-house-of-wu-serena-london-style-20174.html"><img src="//static.msromantic.com/43182/house-of-wu-serena-london-style-20174.jpg" alt="Serena London Style 20174 - Serena London" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/house-of-wu-serena-london/19032-house-of-wu-serena-london-style-20174.html](https://www.antebrands.com/en/house-of-wu-serena-london/19032-house-of-wu-serena-london-style-20174.html)

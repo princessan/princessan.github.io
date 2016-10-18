@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,V-neck,Short/Mini,Sleeveless]
 Just **$319.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16868-weddington-way-theia-881761.html"><img src="//static.msromantic.com/37667/weddington-way-theia-881761.jpg" alt="Weddington Way Theia 881761" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16868-weddington-way-theia-881761.html"><img src="//static.msromantic.com/37667/weddington-way-theia-881761.jpg" alt="Weddington Way Theia 881761" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/16868-weddington-way-theia-881761.html](https://www.readybrides.com/en/weddington-way/16868-weddington-way-theia-881761.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/16868-weddington-way-theia-881761.html](https://www.antebrands.com/en/weddington-way/16868-weddington-way-theia-881761.html)

@@ -9,7 +9,7 @@ tags: [House of Wu - Damas]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/house-of-wu-damas/18615-house-of-wu-damas-style-52316.html"><img src="//static.msromantic.com/41984/house-of-wu-damas-style-52316.jpg" alt="Damas Style 52316- Damas" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/house-of-wu-damas/18615-house-of-wu-damas-style-52316.html"><img src="//static.msromantic.com/41984/house-of-wu-damas-style-52316.jpg" alt="Damas Style 52316- Damas" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/house-of-wu-damas/18615-house-of-wu-damas-style-52316.html"><img src="//static.msromantic.com/41983/house-of-wu-damas-style-52316.jpg" alt="Damas Style 52316- Damas" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/house-of-wu-damas/18615-house-of-wu-damas-style-52316.html](https://www.readybrides.com/en/house-of-wu-damas/18615-house-of-wu-damas-style-52316.html)
+<!-- break --><a href="https://www.antebrands.com/en/house-of-wu-damas/18615-house-of-wu-damas-style-52316.html"><img src="//static.msromantic.com/41983/house-of-wu-damas-style-52316.jpg" alt="Damas Style 52316- Damas" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/house-of-wu-damas/18615-house-of-wu-damas-style-52316.html](https://www.antebrands.com/en/house-of-wu-damas/18615-house-of-wu-damas-style-52316.html)

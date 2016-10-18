@@ -9,7 +9,7 @@ tags: [Amanda Wakeley,Empire,Strapless,Cathedral Train,Sleeveless]
 Just **$319.99**
 ###   Sleeveless Cathedral Train Empire 
 <table><tr><td>BRANDS</td><td>Amanda Wakeley</td></tr><tr><td>Silhouette</td><td>Empire</td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Cathedral Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/amanda-wakeley/17543-amanda-wakeley-ariadne-wedding-dress.html"><img src="//static.msromantic.com/38936/amanda-wakeley-ariadne-wedding-dress.jpg" alt="Amanda Wakeley Ariadne Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/amanda-wakeley/17543-amanda-wakeley-ariadne-wedding-dress.html"><img src="//static.msromantic.com/38936/amanda-wakeley-ariadne-wedding-dress.jpg" alt="Amanda Wakeley Ariadne Wedding Dress" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/amanda-wakeley/17543-amanda-wakeley-ariadne-wedding-dress.html"><img src="//static.msromantic.com/38935/amanda-wakeley-ariadne-wedding-dress.jpg" alt="Amanda Wakeley Ariadne Wedding Dress" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/amanda-wakeley/17543-amanda-wakeley-ariadne-wedding-dress.html](https://www.readybrides.com/en/amanda-wakeley/17543-amanda-wakeley-ariadne-wedding-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/amanda-wakeley/17543-amanda-wakeley-ariadne-wedding-dress.html"><img src="//static.msromantic.com/38935/amanda-wakeley-ariadne-wedding-dress.jpg" alt="Amanda Wakeley Ariadne Wedding Dress" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/amanda-wakeley/17543-amanda-wakeley-ariadne-wedding-dress.html](https://www.antebrands.com/en/amanda-wakeley/17543-amanda-wakeley-ariadne-wedding-dress.html)

@@ -9,7 +9,7 @@ tags: [Bianca Sposa]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/bianca-sposa/20082-bianca-sposa-art-1876.html"><img src="//static.msromantic.com/45386/bianca-sposa-art-1876.jpg" alt="Bianca Sposa Art. 1876" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bianca-sposa/20082-bianca-sposa-art-1876.html"><img src="//static.msromantic.com/45386/bianca-sposa-art-1876.jpg" alt="Bianca Sposa Art. 1876" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/bianca-sposa/20082-bianca-sposa-art-1876.html](https://www.readybrides.com/en/bianca-sposa/20082-bianca-sposa-art-1876.html)
+Buy it: [https://www.antebrands.com/en/bianca-sposa/20082-bianca-sposa-art-1876.html](https://www.antebrands.com/en/bianca-sposa/20082-bianca-sposa-art-1876.html)

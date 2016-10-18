@@ -9,7 +9,7 @@ tags: [Weddington Way,Mermaid/Trumpet,One shoulder,Floor-Length,Sleeveless]
 Just **$159.99**
 ###   Sleeveless Floor-Length Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>One shoulder</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/15999-weddington-way-badgley-mischka-bm13.html"><img src="//static.msromantic.com/36162/weddington-way-badgley-mischka-bm13.jpg" alt="Weddington Way Badgley Mischka BM13" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/15999-weddington-way-badgley-mischka-bm13.html"><img src="//static.msromantic.com/36162/weddington-way-badgley-mischka-bm13.jpg" alt="Weddington Way Badgley Mischka BM13" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/15999-weddington-way-badgley-mischka-bm13.html](https://www.readybrides.com/en/weddington-way/15999-weddington-way-badgley-mischka-bm13.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/15999-weddington-way-badgley-mischka-bm13.html](https://www.antebrands.com/en/weddington-way/15999-weddington-way-badgley-mischka-bm13.html)

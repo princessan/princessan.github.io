@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Spaghetti Straps,Floor-Length,Sleeveless]
 Just **$179.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Spaghetti Straps</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/15808-weddington-way-dessy-jr518.html"><img src="//static.msromantic.com/35810/weddington-way-dessy-jr518.jpg" alt="Weddington Way Dessy JR518" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/15808-weddington-way-dessy-jr518.html"><img src="//static.msromantic.com/35810/weddington-way-dessy-jr518.jpg" alt="Weddington Way Dessy JR518" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/15808-weddington-way-dessy-jr518.html"><img src="//static.msromantic.com/35809/weddington-way-dessy-jr518.jpg" alt="Weddington Way Dessy JR518" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/15808-weddington-way-dessy-jr518.html](https://www.readybrides.com/en/weddington-way/15808-weddington-way-dessy-jr518.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/15808-weddington-way-dessy-jr518.html"><img src="//static.msromantic.com/35809/weddington-way-dessy-jr518.jpg" alt="Weddington Way Dessy JR518" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/15808-weddington-way-dessy-jr518.html](https://www.antebrands.com/en/weddington-way/15808-weddington-way-dessy-jr518.html)

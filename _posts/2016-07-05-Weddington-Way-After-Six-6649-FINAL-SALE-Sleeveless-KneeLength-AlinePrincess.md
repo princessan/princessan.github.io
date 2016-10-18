@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Strapless,Knee-Length,Sleeveless]
 Just **$149.99**
 ###   Sleeveless Knee-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Knee-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16310-weddington-way-after-six-6649-final-sale.html"><img src="//static.msromantic.com/36693/weddington-way-after-six-6649-final-sale.jpg" alt="Weddington Way After Six 6649 FINAL SALE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16310-weddington-way-after-six-6649-final-sale.html"><img src="//static.msromantic.com/36693/weddington-way-after-six-6649-final-sale.jpg" alt="Weddington Way After Six 6649 FINAL SALE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/16310-weddington-way-after-six-6649-final-sale.html](https://www.readybrides.com/en/weddington-way/16310-weddington-way-after-six-6649-final-sale.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/16310-weddington-way-after-six-6649-final-sale.html](https://www.antebrands.com/en/weddington-way/16310-weddington-way-after-six-6649-final-sale.html)

@@ -9,7 +9,7 @@ tags: [Carla Ruiz,Carla Ruiz ,Sheath/Column,Queen Anne,Knee-Length,Short Sleeves
 Just **$239.99**
 ###   Short Sleeves Knee-Length Sheath/Column 
 <table><tr><td>BRANDS</td><td>Carla Ruiz </td></tr><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Neckline</td><td>Queen Anne</td></tr><tr><td>Hemline/Train</td><td>Knee-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/carla-ruiz/20456-carla-ruiz-ref-91452.html"><img src="//static.msromantic.com/46245/carla-ruiz-ref-91452.jpg" alt="Carla Ruiz Ref. 91452" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/carla-ruiz/20456-carla-ruiz-ref-91452.html"><img src="//static.msromantic.com/46245/carla-ruiz-ref-91452.jpg" alt="Carla Ruiz Ref. 91452" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/carla-ruiz/20456-carla-ruiz-ref-91452.html](https://www.readybrides.com/en/carla-ruiz/20456-carla-ruiz-ref-91452.html)
+Buy it: [https://www.antebrands.com/en/carla-ruiz/20456-carla-ruiz-ref-91452.html](https://www.antebrands.com/en/carla-ruiz/20456-carla-ruiz-ref-91452.html)

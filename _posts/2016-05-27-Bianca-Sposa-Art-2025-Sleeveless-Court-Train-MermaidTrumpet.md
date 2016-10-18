@@ -9,7 +9,7 @@ tags: [Bianca Sposa,Mermaid/Trumpet,Sweetheart,Court Train,Sleeveless]
 Just **$349.99**
 ###   Sleeveless Court Train Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Bianca Sposa</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/bianca-sposa/20007-bianca-sposa-art-2025.html"><img src="//static.msromantic.com/45299/bianca-sposa-art-2025.jpg" alt="Bianca Sposa Art. 2025" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bianca-sposa/20007-bianca-sposa-art-2025.html"><img src="//static.msromantic.com/45299/bianca-sposa-art-2025.jpg" alt="Bianca Sposa Art. 2025" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/bianca-sposa/20007-bianca-sposa-art-2025.html"><img src="//static.msromantic.com/45298/bianca-sposa-art-2025.jpg" alt="Bianca Sposa Art. 2025" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/bianca-sposa/20007-bianca-sposa-art-2025.html](https://www.readybrides.com/en/bianca-sposa/20007-bianca-sposa-art-2025.html)
+<!-- break --><a href="https://www.antebrands.com/en/bianca-sposa/20007-bianca-sposa-art-2025.html"><img src="//static.msromantic.com/45298/bianca-sposa-art-2025.jpg" alt="Bianca Sposa Art. 2025" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/bianca-sposa/20007-bianca-sposa-art-2025.html](https://www.antebrands.com/en/bianca-sposa/20007-bianca-sposa-art-2025.html)

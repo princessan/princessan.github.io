@@ -9,7 +9,7 @@ tags: [Weddington Way ,Weddington Way,Aline/Princess ,Bateau,Short/Mini,Sleevele
 Just **$289.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way-/16894-weddington-way-theia-emily.html"><img src="//static.msromantic.com/37707/weddington-way-theia-emily.jpg" alt="Weddington Way Theia Emily" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way-/16894-weddington-way-theia-emily.html"><img src="//static.msromantic.com/37707/weddington-way-theia-emily.jpg" alt="Weddington Way Theia Emily" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way-/16894-weddington-way-theia-emily.html](https://www.readybrides.com/en/weddington-way-/16894-weddington-way-theia-emily.html)
+Buy it: [https://www.antebrands.com/en/weddington-way-/16894-weddington-way-theia-emily.html](https://www.antebrands.com/en/weddington-way-/16894-weddington-way-theia-emily.html)

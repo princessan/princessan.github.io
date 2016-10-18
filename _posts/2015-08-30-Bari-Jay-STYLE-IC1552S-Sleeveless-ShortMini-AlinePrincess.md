@@ -9,7 +9,7 @@ tags: [Bari Jay ,Bari Jay  ,Aline/Princess ,Strapless,Short/Mini,Sleeveless]
 Just **$149.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Bari Jay  </td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/bari-jay-/15066-bari-jay-style-ic-1552-s.html"><img src="//static.msromantic.com/34198/bari-jay-style-ic-1552-s.jpg" alt="Bari Jay STYLE: IC-1552-S" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bari-jay-/15066-bari-jay-style-ic-1552-s.html"><img src="//static.msromantic.com/34198/bari-jay-style-ic-1552-s.jpg" alt="Bari Jay STYLE: IC-1552-S" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/bari-jay-/15066-bari-jay-style-ic-1552-s.html](https://www.readybrides.com/en/bari-jay-/15066-bari-jay-style-ic-1552-s.html)
+Buy it: [https://www.antebrands.com/en/bari-jay-/15066-bari-jay-style-ic-1552-s.html](https://www.antebrands.com/en/bari-jay-/15066-bari-jay-style-ic-1552-s.html)

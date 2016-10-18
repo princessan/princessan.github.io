@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Bateau,Short/Mini,Sleeveless]
 Just **$129.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/15456-weddington-way-dessy-2915-quick-delivery.html"><img src="//static.msromantic.com/35176/weddington-way-dessy-2915-quick-delivery.jpg" alt="Weddington Way Dessy 2915 Quick Delivery" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/15456-weddington-way-dessy-2915-quick-delivery.html"><img src="//static.msromantic.com/35176/weddington-way-dessy-2915-quick-delivery.jpg" alt="Weddington Way Dessy 2915 Quick Delivery" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/15456-weddington-way-dessy-2915-quick-delivery.html"><img src="//static.msromantic.com/35175/weddington-way-dessy-2915-quick-delivery.jpg" alt="Weddington Way Dessy 2915 Quick Delivery" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/15456-weddington-way-dessy-2915-quick-delivery.html](https://www.readybrides.com/en/weddington-way/15456-weddington-way-dessy-2915-quick-delivery.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/15456-weddington-way-dessy-2915-quick-delivery.html"><img src="//static.msromantic.com/35175/weddington-way-dessy-2915-quick-delivery.jpg" alt="Weddington Way Dessy 2915 Quick Delivery" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/15456-weddington-way-dessy-2915-quick-delivery.html](https://www.antebrands.com/en/weddington-way/15456-weddington-way-dessy-2915-quick-delivery.html)

@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Sweetheart,Short/Mini,Sleeveless]
 Just **$199.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16972-weddington-way-jim-hjelm-5379s-chiffon.html"><img src="//static.msromantic.com/37862/weddington-way-jim-hjelm-5379s-chiffon.jpg" alt="Weddington Way Jim Hjelm 5379s Chiffon" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16972-weddington-way-jim-hjelm-5379s-chiffon.html"><img src="//static.msromantic.com/37862/weddington-way-jim-hjelm-5379s-chiffon.jpg" alt="Weddington Way Jim Hjelm 5379s Chiffon" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/16972-weddington-way-jim-hjelm-5379s-chiffon.html"><img src="//static.msromantic.com/37861/weddington-way-jim-hjelm-5379s-chiffon.jpg" alt="Weddington Way Jim Hjelm 5379s Chiffon" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/16972-weddington-way-jim-hjelm-5379s-chiffon.html](https://www.readybrides.com/en/weddington-way/16972-weddington-way-jim-hjelm-5379s-chiffon.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/16972-weddington-way-jim-hjelm-5379s-chiffon.html"><img src="//static.msromantic.com/37861/weddington-way-jim-hjelm-5379s-chiffon.jpg" alt="Weddington Way Jim Hjelm 5379s Chiffon" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/16972-weddington-way-jim-hjelm-5379s-chiffon.html](https://www.antebrands.com/en/weddington-way/16972-weddington-way-jim-hjelm-5379s-chiffon.html)

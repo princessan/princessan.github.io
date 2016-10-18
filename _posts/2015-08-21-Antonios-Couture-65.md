@@ -9,7 +9,7 @@ tags: [Antonios Couture]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/antonios-couture/17392-antonios-couture-65.html"><img src="//static.msromantic.com/38627/antonios-couture-65.jpg" alt="Antonios Couture 65" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/antonios-couture/17392-antonios-couture-65.html"><img src="//static.msromantic.com/38627/antonios-couture-65.jpg" alt="Antonios Couture 65" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/antonios-couture/17392-antonios-couture-65.html"><img src="//static.msromantic.com/38626/antonios-couture-65.jpg" alt="Antonios Couture 65" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/antonios-couture/17392-antonios-couture-65.html](https://www.readybrides.com/en/antonios-couture/17392-antonios-couture-65.html)
+<!-- break --><a href="https://www.antebrands.com/en/antonios-couture/17392-antonios-couture-65.html"><img src="//static.msromantic.com/38626/antonios-couture-65.jpg" alt="Antonios Couture 65" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/antonios-couture/17392-antonios-couture-65.html](https://www.antebrands.com/en/antonios-couture/17392-antonios-couture-65.html)

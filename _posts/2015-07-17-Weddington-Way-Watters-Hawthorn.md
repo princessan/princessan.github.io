@@ -9,7 +9,7 @@ tags: [Weddington Way]
 Just **$129.99**
 ### 
 
-<a href="https://www.readybrides.com/en/weddington-way/15489-weddington-way-watters-hawthorn.html"><img src="//static.msromantic.com/217121/weddington-way-watters-hawthorn.jpg" alt="Weddington Way Watters Hawthorn" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/15489-weddington-way-watters-hawthorn.html"><img src="//static.msromantic.com/217121/weddington-way-watters-hawthorn.jpg" alt="Weddington Way Watters Hawthorn" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/15489-weddington-way-watters-hawthorn.html](https://www.readybrides.com/en/weddington-way/15489-weddington-way-watters-hawthorn.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/15489-weddington-way-watters-hawthorn.html](https://www.antebrands.com/en/weddington-way/15489-weddington-way-watters-hawthorn.html)

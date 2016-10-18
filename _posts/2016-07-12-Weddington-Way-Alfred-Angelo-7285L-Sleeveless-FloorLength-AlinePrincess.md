@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Bateau,Floor-Length,Sleeveless]
 Just **$139.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16317-weddington-way-alfred-angelo-7285l.html"><img src="//static.msromantic.com/36702/weddington-way-alfred-angelo-7285l.jpg" alt="Weddington Way Alfred Angelo 7285L" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16317-weddington-way-alfred-angelo-7285l.html"><img src="//static.msromantic.com/36702/weddington-way-alfred-angelo-7285l.jpg" alt="Weddington Way Alfred Angelo 7285L" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/16317-weddington-way-alfred-angelo-7285l.html"><img src="//static.msromantic.com/36701/weddington-way-alfred-angelo-7285l.jpg" alt="Weddington Way Alfred Angelo 7285L" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/16317-weddington-way-alfred-angelo-7285l.html](https://www.readybrides.com/en/weddington-way/16317-weddington-way-alfred-angelo-7285l.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/16317-weddington-way-alfred-angelo-7285l.html"><img src="//static.msromantic.com/36701/weddington-way-alfred-angelo-7285l.jpg" alt="Weddington Way Alfred Angelo 7285L" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/16317-weddington-way-alfred-angelo-7285l.html](https://www.antebrands.com/en/weddington-way/16317-weddington-way-alfred-angelo-7285l.html)

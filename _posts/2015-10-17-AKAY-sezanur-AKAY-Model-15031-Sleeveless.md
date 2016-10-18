@@ -9,7 +9,7 @@ tags: [AKAY sezanur,Sleeveless]
 Just **$329.99**
 ###   Sleeveless   
 <table><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/akay-sezanur-akay-2015/19784-akay-model-15031.html"><img src="//static.msromantic.com/44829/akay-model-15031.jpg" alt="AKAY Model 15031" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/akay-sezanur-akay-2015/19784-akay-model-15031.html"><img src="//static.msromantic.com/44829/akay-model-15031.jpg" alt="AKAY Model 15031" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/akay-sezanur-akay-2015/19784-akay-model-15031.html](https://www.readybrides.com/en/akay-sezanur-akay-2015/19784-akay-model-15031.html)
+Buy it: [https://www.antebrands.com/en/akay-sezanur-akay-2015/19784-akay-model-15031.html](https://www.antebrands.com/en/akay-sezanur-akay-2015/19784-akay-model-15031.html)

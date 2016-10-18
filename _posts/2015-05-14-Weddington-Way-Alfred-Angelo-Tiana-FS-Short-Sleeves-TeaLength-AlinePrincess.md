@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Scoop Neck,Tea-Length,Short Sleeves]
 Just **$149.99**
 ###   Short Sleeves Tea-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Scoop Neck</td></tr><tr><td>Hemline/Train</td><td>Tea-Length</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16826-weddington-way-alfred-angelo-tiana-fs.html"><img src="//static.msromantic.com/37597/weddington-way-alfred-angelo-tiana-fs.jpg" alt="Weddington Way Alfred Angelo Tiana FS" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16826-weddington-way-alfred-angelo-tiana-fs.html"><img src="//static.msromantic.com/37597/weddington-way-alfred-angelo-tiana-fs.jpg" alt="Weddington Way Alfred Angelo Tiana FS" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/16826-weddington-way-alfred-angelo-tiana-fs.html](https://www.readybrides.com/en/weddington-way/16826-weddington-way-alfred-angelo-tiana-fs.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/16826-weddington-way-alfred-angelo-tiana-fs.html](https://www.antebrands.com/en/weddington-way/16826-weddington-way-alfred-angelo-tiana-fs.html)

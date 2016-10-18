@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,V-neck,Short/Mini,Sleeveless]
 Just **$109.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/15698-weddington-way-donna-morgan-coco.html"><img src="//static.msromantic.com/35614/weddington-way-donna-morgan-coco.jpg" alt="Weddington Way Donna Morgan Coco" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/15698-weddington-way-donna-morgan-coco.html"><img src="//static.msromantic.com/35614/weddington-way-donna-morgan-coco.jpg" alt="Weddington Way Donna Morgan Coco" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/15698-weddington-way-donna-morgan-coco.html](https://www.readybrides.com/en/weddington-way/15698-weddington-way-donna-morgan-coco.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/15698-weddington-way-donna-morgan-coco.html](https://www.antebrands.com/en/weddington-way/15698-weddington-way-donna-morgan-coco.html)

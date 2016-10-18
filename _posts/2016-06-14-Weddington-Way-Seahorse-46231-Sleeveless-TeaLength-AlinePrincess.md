@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Square,Tea-Length,Sleeveless]
 Just **$189.99**
 ###   Sleeveless Tea-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Square</td></tr><tr><td>Hemline/Train</td><td>Tea-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16756-weddington-way-seahorse-46231.html"><img src="//static.msromantic.com/37499/weddington-way-seahorse-46231.jpg" alt="Weddington Way Seahorse 46231" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16756-weddington-way-seahorse-46231.html"><img src="//static.msromantic.com/37499/weddington-way-seahorse-46231.jpg" alt="Weddington Way Seahorse 46231" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/weddington-way/16756-weddington-way-seahorse-46231.html](https://www.readybrides.com/en/weddington-way/16756-weddington-way-seahorse-46231.html)
+Buy it: [https://www.antebrands.com/en/weddington-way/16756-weddington-way-seahorse-46231.html](https://www.antebrands.com/en/weddington-way/16756-weddington-way-seahorse-46231.html)

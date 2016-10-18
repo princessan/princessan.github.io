@@ -9,7 +9,7 @@ tags: [Weddington Way,Aline/Princess ,Bateau,Short/Mini,Sleeveless]
 Just **$119.99**
 ###   Sleeveless Short/Mini Aline/Princess  
 <table><tr><td>BRANDS</td><td>Weddington Way</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Bateau</td></tr><tr><td>Hemline/Train</td><td>Short/Mini</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/weddington-way/16365-weddington-way-alfred-sung-d680.html"><img src="//static.msromantic.com/36773/weddington-way-alfred-sung-d680.jpg" alt="Weddington Way Alfred Sung D680" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/weddington-way/16365-weddington-way-alfred-sung-d680.html"><img src="//static.msromantic.com/36773/weddington-way-alfred-sung-d680.jpg" alt="Weddington Way Alfred Sung D680" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/weddington-way/16365-weddington-way-alfred-sung-d680.html"><img src="//static.msromantic.com/36772/weddington-way-alfred-sung-d680.jpg" alt="Weddington Way Alfred Sung D680" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/weddington-way/16365-weddington-way-alfred-sung-d680.html](https://www.readybrides.com/en/weddington-way/16365-weddington-way-alfred-sung-d680.html)
+<!-- break --><a href="https://www.antebrands.com/en/weddington-way/16365-weddington-way-alfred-sung-d680.html"><img src="//static.msromantic.com/36772/weddington-way-alfred-sung-d680.jpg" alt="Weddington Way Alfred Sung D680" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/weddington-way/16365-weddington-way-alfred-sung-d680.html](https://www.antebrands.com/en/weddington-way/16365-weddington-way-alfred-sung-d680.html)

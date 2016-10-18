@@ -9,7 +9,7 @@ tags: [Bari Jay ,Bari Jay  ,Aline/Princess ,Strapless,Floor-Length,Sleeveless]
 Just **$199.99**
 ###   Sleeveless Floor-Length Aline/Princess  
 <table><tr><td>BRANDS</td><td>Bari Jay  </td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Strapless</td></tr><tr><td>Hemline/Train</td><td>Floor-Length</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/bari-jay-/15238-bari-jay-style-664.html"><img src="//static.msromantic.com/34657/bari-jay-style-664.jpg" alt="Bari Jay STYLE: 664" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/bari-jay-/15238-bari-jay-style-664.html"><img src="//static.msromantic.com/34657/bari-jay-style-664.jpg" alt="Bari Jay STYLE: 664" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/bari-jay-/15238-bari-jay-style-664.html"><img src="//static.msromantic.com/34656/bari-jay-style-664.jpg" alt="Bari Jay STYLE: 664" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/bari-jay-/15238-bari-jay-style-664.html](https://www.readybrides.com/en/bari-jay-/15238-bari-jay-style-664.html)
+<!-- break --><a href="https://www.antebrands.com/en/bari-jay-/15238-bari-jay-style-664.html"><img src="//static.msromantic.com/34656/bari-jay-style-664.jpg" alt="Bari Jay STYLE: 664" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/bari-jay-/15238-bari-jay-style-664.html](https://www.antebrands.com/en/bari-jay-/15238-bari-jay-style-664.html)
