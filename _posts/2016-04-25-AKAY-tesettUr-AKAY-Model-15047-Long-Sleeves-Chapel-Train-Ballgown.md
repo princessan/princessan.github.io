@@ -1,0 +1,15 @@
+---
+layout: post
+date: '2016-04-25'
+title: "AKAY tesettUr AKAY Model 15047 Long Sleeves Chapel Train Ballgown"
+category: AKAY tesettUr
+tags: [AKAY tesettUr,Ballgown,High Neck,Chapel Train,Long Sleeves]
+---
+### AKAY tesettUr AKAY Model 15047
+Just **$289.99**
+###   Long Sleeves Chapel Train Ballgown 
+<table><tr><td>BRANDS</td><td>AKAY tesettUr</td></tr><tr><td>Silhouette</td><td>Ballgown</td></tr><tr><td>Neckline</td><td>High Neck</td></tr><tr><td>Hemline/Train</td><td>Chapel Train</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr></table>
+<a href="https://www.readybrides.com/en/akay-tesettur-2015/19747-akay-model-15047.html"><img src="//img.readybrides.com/44792/akay-model-15047.jpg" alt="AKAY Model 15047" style="width:100%;" /></a>
+
+<!-- break -->
+Buy it: [https://www.readybrides.com/en/akay-tesettur-2015/19747-akay-model-15047.html](https://www.readybrides.com/en/akay-tesettur-2015/19747-akay-model-15047.html)
