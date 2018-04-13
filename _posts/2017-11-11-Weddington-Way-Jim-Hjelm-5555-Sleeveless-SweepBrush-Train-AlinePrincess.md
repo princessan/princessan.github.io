@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2017-11-11'
+date: 2017-11-11
 title: "Weddington Way Jim Hjelm 5555 Sleeveless Sweep/Brush Train Aline/Princess"
 category: Weddington Way
 tags: [Weddington Way,Aline/Princess ,Sweetheart,Sweep/Brush Train,Sleeveless]

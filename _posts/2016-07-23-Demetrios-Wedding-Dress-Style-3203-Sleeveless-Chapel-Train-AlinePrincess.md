@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2016-07-23'
+date: 2016-07-23
 title: "Demetrios Wedding Dress Style 3203 Sleeveless Chapel Train Aline/Princess"
 category: Demetrios
 tags: [Demetrios,Aline/Princess ,Sweetheart,Chapel Train,Sleeveless]

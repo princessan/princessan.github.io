@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2018-02-16'
+date: 2018-02-16
 title: "Casablanca Bridal 1791 Fall 2005 2005 Fall Sleeveless Chapel Train Aline/Princess"
 category: Casablanca 
 tags: [Casablanca ,Casablanca,Aline/Princess ,Strapless,Chapel Train,Sleeveless,2005,Fall]

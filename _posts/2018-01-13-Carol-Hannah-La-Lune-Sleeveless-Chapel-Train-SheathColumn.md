@@ -1,6 +1,6 @@
 ---
 layout: post
-date: '2018-01-13'
+date: 2018-01-13
 title: "Carol Hannah La Lune Sleeveless Chapel Train Sheath/Column"
 category: Carol Hannah
 tags: [Carol Hannah,Sheath/Column,Strapless,Chapel Train,Sleeveless]
